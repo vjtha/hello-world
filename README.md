@@ -14,3 +14,10 @@ Lookin' at you sideways, party on tilt
 Ooh-ooh, some things you just can't refuse
 She wanna ride me like a cruise
 And I'm not tryna lose
+
+
+
+Ayy, ayy, ayy, ayy (ooh)
+Ooh, ooh, ooh, ohh (ooh)
+Ayy, ayy
+Ooh, ooh, ooh, ooh
